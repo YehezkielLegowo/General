@@ -4,7 +4,7 @@ Important Link for Main Site :
 > https://shorturl.at/Igdu0 (Main Site)
 
 EZEPLAY Links : 
-> yehezkiellegowo.us.to:8870/ezeplay (Temporaries)
+> http://yehezkiellegowo.us.to:8870/ezeplay (Temporaries)
 
 ZYYGroups Links : 
-> zyygroups.us.to/main
+> http://zyygroups.us.to/main
